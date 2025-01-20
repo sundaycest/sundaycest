@@ -1,5 +1,6 @@
-## Hi there 👋
-
+                           me on my ipad checking what ponytown.com has in store for me!
+![Image](https://github.com/user-attachments/assets/c5b807af-cd05-40d4-8838-7f4dc0a273f8)
+![Image](https://github.com/user-attachments/assets/4f28782e-ce18-4a24-ac0b-a0639728ab54)
 <!--
 **sundaycest/sundaycest** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
