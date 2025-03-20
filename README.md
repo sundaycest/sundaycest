@@ -9,3 +9,7 @@
 !! c + h always dont be shy lol
   
 ![Image](https://github.com/user-attachments/assets/029c6abb-bee8-4c33-a6b7-9229574d80fe)
+
+<p align="center"
+  
+  ![Image](https://github.com/user-attachments/assets/eade54fe-0e6b-4cfe-9631-9ac5e3d067e6) ![Image](https://github.com/user-attachments/assets/7d90d74e-c4ae-4a49-a07f-401d7cdb3b55)
