@@ -7,7 +7,5 @@
 𝐧𝐢𝐜𝐡 or 37  ☼  he / they - w2i [only looking if oomfs r w/ me] ><
 <p align="center">
 !! c + h always dont be shy lol
-
-
   
 ![Image](https://github.com/user-attachments/assets/029c6abb-bee8-4c33-a6b7-9229574d80fe)
