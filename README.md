@@ -1,9 +1,7 @@
 <p align="center"
   
 [♡](https://www.tickcounter.com/countup/423369/sundays-banner-released) ![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31obthbw4zmiii4ky3is2evtaqme&cover_image=true&theme=natemoo-re&show_offline=false&background_color=ffffff&interchange=true&bar_color=6d79ff&bar_color_cover=false) [♡](https://www.tickcounter.com/countup/423369/sundays-banner-released)
-
 ![Image](https://github.com/user-attachments/assets/62457833-a946-478a-97ce-4e026f175d6c)
-
 <p align="center"
   
   ![Image](https://github.com/user-attachments/assets/88e9bb97-3198-4043-88cc-b3bd157f5de5) ![Image](https://github.com/user-attachments/assets/248c4485-9627-41a7-b0d2-94acff8f07ba)
