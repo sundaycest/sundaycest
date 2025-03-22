@@ -2,7 +2,7 @@
   
 ![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31obthbw4zmiii4ky3is2evtaqme&cover_image=true&theme=natemoo-re&show_offline=false&background_color=ffffff&interchange=true&bar_color=6d79ff&bar_color_cover=false)
 
-![Image](https://github.com/user-attachments/assets/88c37e1c-37fe-449f-a162-51b1392041f9)
+![Image](https://github.com/user-attachments/assets/62457833-a946-478a-97ce-4e026f175d6c)
 
 <p align="center"
   
